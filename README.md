@@ -1,6 +1,6 @@
 ## 👋 Hello, I'm Caroline
 
-Executive Headhunter and Career Strategist by day ☼  
+Executive Headhunter and Career Strategist — Founder of [Madil](https://madilcarreira.netlify.app/) by day ☼   
 Studying technology, systems and innovation by night ☾  
 I admire all technologies, but Java has my heart.
 
