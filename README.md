@@ -1,6 +1,6 @@
 ## 👋 Hello, I'm Caroline
 
-Executive Headhunter and Career Strategist — Founder of [Alys](somosalys.co) by day ☼   
+Executive Headhunter and Career Strategist — Founder of [Alys](https://somosalys.co/) by day ☼   
 Studying technology, systems and innovation by night ☾  
 I admire all technologies, but Java has my heart.
 
